@@ -1,4 +1,4 @@
-
+Experience bridger western like never before with bridger western Script exclusive, the #1 Script. Includes auto-farm and custom skins for unbeatable
 
 
 
